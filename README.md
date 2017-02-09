@@ -1,1 +1,0 @@
-# alexmdac.github.io
